@@ -14,3 +14,8 @@ https://docs.google.com/spreadsheets/d/17kYk22syFkzaFKKtrwCZ9Z5dvI1m5usSls6IrIsR
 
 <img width="1366" height="768" alt="image" src="https://github.com/user-attachments/assets/3f9d583e-5d50-4d46-893b-151adde8dc4b" />
 
+## QUIZ-4 Leadboard
+
+<img width="1366" height="768" alt="image" src="https://github.com/user-attachments/assets/1c196606-98ce-4f4b-b016-ec3acc101b68" />
+
+
