@@ -23,3 +23,8 @@ https://docs.google.com/spreadsheets/d/17kYk22syFkzaFKKtrwCZ9Z5dvI1m5usSls6IrIsR
 <img width="1366" height="768" alt="image" src="https://github.com/user-attachments/assets/6e6145f7-c542-40c3-9dc4-369e6a201026" />
 
 
+## FEEDBACK LINK
+
+https://forms.gle/67t6Z7ysSkHhjrSS7
+
+
